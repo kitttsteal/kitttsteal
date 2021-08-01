@@ -1,0 +1,2 @@
+ - 👋 Hi, I’m @kitttsteal
+- 👀 I’m interested in information
